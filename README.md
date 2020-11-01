@@ -33,5 +33,7 @@ Connect to us on Whatsapp, as and when you need it.
 Download and install the Companify app on your smartphone and enjoy legal comfort at your fingertips!
 Call or whatsapp us at +91 7710771301 Email at Contact@companify.in
 
-#Sample Images
-![GET STARTED SCREEN](https://play-lh.googleusercontent.com/vElntpMox4IvtkGyFq1QlxXhSewL4xg18CoEdM2KSoYBNy1TaYJ4C-A53HjiKS7yZ7M=w1536-h754-rw)
+# Sample Images
+![### SPLASH SCREEN](https://play-lh.googleusercontent.com/psbks78uNkh6-vAj1NlIEoOEFwB5j344tTwY9L5SHXpwJ-iYR18evMROrX1w1rqMug=w1536-h754-rw)
+
+![### GET STARTED SCREEN](https://play-lh.googleusercontent.com/vElntpMox4IvtkGyFq1QlxXhSewL4xg18CoEdM2KSoYBNy1TaYJ4C-A53HjiKS7yZ7M=w1536-h754-rw)
