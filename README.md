@@ -40,3 +40,9 @@ Call or whatsapp us at +91 7710771301 Email at Contact@companify.in
 
 ![### OTP VERIFICATION SCREEN](https://play-lh.googleusercontent.com/bnLNTLyXO8oYbSsToc-QoQPe17ws4Mx_BzQlGCnX-vjI7C0mvCX4FH45l2D71G7_RVY=w1536-h754-rw)
 
+![### HOME SCREEN](https://play-lh.googleusercontent.com/lJ--tBbFo3chXoSPehV5pnmB_xXBSXbzqO-i4n4DXLKRjjVYKiX75qnNnTk2DEyx9Jg=w1536-h754-rw
+
+![### REWARD SCREEN](https://play-lh.googleusercontent.com/vyX1EEAdWlW4V-ycKPSrH5Ycpslmbipx8y3-vwZy_l42WUCoz7xzji4sBll9ugcfZg=w1536-h754-rw)
+
+![### SERVICE SCREEN](https://play-lh.googleusercontent.com/TNKtAlaB3nYbZiHNtoRWl3nHVH1Zri1l7o0a5664BEYjw992KQidZsXvdMqoEKDkL1g=w1536-h754-rw)
+
